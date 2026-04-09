@@ -42,3 +42,8 @@ Format: .docx (Word file)
 یوٹیوب ویڈیو (سیکھنے کے لیے)
 یہ دیکھو، سیدھا concept clear ہو جائے گا 👇
 اگر تم چاہو تو میں تمہارا essay ready format میں بھی بنا سکتا ہوں (proper spacing + font set)، تم بس content دے دو۔
+
+
+
+
+director.studentaffairs@alkawthar.edu.pk
